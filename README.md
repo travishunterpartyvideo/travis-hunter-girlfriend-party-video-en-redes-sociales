@@ -2,8 +2,13 @@
 
 Viral video TRAVIS HUNTER GIRLFRIEND CAUGHT THROWING IT BACK AT A PARTY
 
-People are really trying extra hard to be messy these days...
-Antonio Brown is the latest online troll seeking to get messy and presumptuous when it comes to Travis Hunter's relationship. For those unaware, the Heisman Trophy recipient faces a lot of discussion right now around his fiancée Leanna Lenee, whom many accused of gold-digging and of showing many signs that she's not actually invested in her man. In fact, fans spotted her in a three-year-old music video, which made them curious because Hunter and Lenee have been together for five years. "Travis Hunter Officially becoming DB," AB tweeted in response to this speculation. Like many others, he just wants to fuel the drama.
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
 
 As such, we can't imagine this is an easy time for Travis Hunter and his fiancée Leanna Lenee right now, regardless of what is true or not. In any case, Hunter defended her online and expressed his frustration with everyone's comments and intrusions into their bond, so maybe people don't see what he sees. Still, many fans commenting on this drama feel like they just want to look out for his well-being. But as you can imagine, intent isn't everything.
 
